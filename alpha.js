@@ -19,7 +19,7 @@ Apa Susah Nya Pencet Tombol Subscribe
 https://youtube.com/c/DcodeDenpa
 -------------------------------------------------------
 ✓ SiFzz Botz ( RECODE ) : 
-https://youtube.com/c/GzBotz
+https://www.youtube.com/channel/UCJuzDUfHKI7Ie9Z21k1Xm_g
 -------------------------------------------------------
 » Help Me 1k Subs SiFzz
 --------------------------------------------------------------**/
